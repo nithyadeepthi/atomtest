@@ -13,7 +13,7 @@ date: "2021-06-13 11:24"
   **Faith is the bird that feels the light when dawn is still dark**
 
   Another one comes there
-  **Everything that comes to us belongs to us only *if we create the capacity* to receive them **
+  **Everything that comes to us belongs to us only *if we create the capacity* to receive them**
 
   Lovely quotes! Ain't them?
 
